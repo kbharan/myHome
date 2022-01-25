@@ -15,3 +15,4 @@ Find a local number | Reset PIN
 Learn More | Meeting options 
 ________________________________________________________________________________ 
 
+KT Video: https://thevanguardgroup-my.sharepoint.com/personal/viswas_ankatha_vanguard_com/_layouts/15/guestaccess.aspx?share=EWcmjqLlZvdOmPQlmb_uPdIBEFlDTMzv7I6vLgpV_FHVeg
